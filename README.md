@@ -1,5 +1,5 @@
 Portfolio Link: 
-gagandeepsingh97.github.io
+https://gagandeepsingh97.github.io/
 
 
 
